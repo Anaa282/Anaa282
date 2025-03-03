@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ammican73@ucatolica.edu.co**
 
-- ⚡ Fun fact **I love dogs**
+- ⚡ Fun fact **I love dogs**. Actually I have one and his name is Jacko.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
